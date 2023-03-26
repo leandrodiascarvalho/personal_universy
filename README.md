@@ -1,1 +1,1 @@
-# study_map
+# personal_universy
